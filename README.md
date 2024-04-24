@@ -11,9 +11,9 @@ My overall goal is to use the technical skills I've gained in BIA, combine them 
 Outside of BIA, I'm a lover of spirituality, engaging my mind, and practicing self-care for my overall health. I also recently received my Reiki Level 1 and 2 Certification. 
 
 Currently, I'm--
-- Reading: [Radical Acceptance Embracing Your Life With the Heart of a Buddha](https://www.tarabrach.com/books/radical-acceptance/); [Intimacy and Solitude: Balance, Closeness, and Independence](https://www.amazon.com/Intimacy-Solitude-Balance-Closeness-Independence/dp/0393313611)
+- Reading: [Radical Acceptance Embracing Your Life With the Heart of a Buddha by Tara Brach](https://www.tarabrach.com/books/radical-acceptance/); [Intimacy and Solitude: Balance, Closeness, and Independence by Stephanie Dowrick](https://www.amazon.com/Intimacy-Solitude-Balance-Closeness-Independence/dp/0393313611)
 - Watching: [Alex The Analyst](https://www.youtube.com/@AlexTheAnalyst); [Mo Chen: Data Analytics Profressional](https://www.youtube.com/@mo-chen)
-- Listening to: [Audiobook--Think Faster, Talk Smarter: How to Speak Successfully When You're Put on the Spot](https://open.spotify.com/show/4XNUzmGAPtxyrXtXhrVOd3?si=439b19186e124ff9)
+- Listening to: [Audiobook--Think Faster, Talk Smarter: How to Speak Successfully When You're Put on the Spot by Matt Abrahams](https://open.spotify.com/show/4XNUzmGAPtxyrXtXhrVOd3?si=439b19186e124ff9)
 
 Please feel free to connect with me on LinkedIn or via email at [coralys.dejesus7@gmail.com](coralys.dejesus7@gmail.com). If you happen to know of any Business Intelligence Analyst positions that align with my interests and skills, I would greatly appreciate your recommendations.
 
