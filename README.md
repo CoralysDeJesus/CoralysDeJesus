@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-My name is Coralys, and I'm an aspiring Business Intelligence Analyst. 
+My name is Coralys, and I'm a Business Intelligence Analyst. 
 
 ❤️‍🔥 I carry with me a passion for psychology, data, and problem-solving. As a former psychology student and graduate research assistant, my understanding of human behavior and experience in data collection was the real start of my data analytic journey. My time in the field has equipped me with a unique perspective for interpreting and analyzing data in the context of business intelligence--making for a surprisingly smooth transition into tech. 
 
